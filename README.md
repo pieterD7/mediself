@@ -16,7 +16,7 @@ gegevens niet met anderen. Ook worden gegevens niet in verband gebracht met gege
 zijn tot personen. U wordt bij het gebruik niet in gevraagd dit soorten gegevens te geven. Ze worden 
 ook niet automatisch gekoppeld. Zo blijven uw gegevens alleen van u. 
 
-Als u een schending van uw privacy vermoed kunt u een klacht indienen bij de privacy authoriteit.
+Als u een schending van uw privacy vermoedt kunt u een klacht indienen bij de privacy autoriteit.
 
 
 English
